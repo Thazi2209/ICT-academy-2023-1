@@ -1,1 +1,0 @@
-# ICT-academy-2023-1
